@@ -22,7 +22,7 @@
 
 - 📫 How to reach me **satwik4you@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10QBoJiNzY_qI9WGRHRmMq7WaigbdJ1og/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16lFW7yz2Ipl9saxZEtzpSur92xY9Uc8i/view?usp=drive_link)
 
 - ⚡ Fun fact **I love bringing designs to life with animation!**
 
